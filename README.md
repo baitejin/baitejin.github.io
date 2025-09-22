@@ -1,1 +1,1 @@
-# baitejin.github.io
+# [baitejin.github.io](https://hoo.be/ysgc6)
